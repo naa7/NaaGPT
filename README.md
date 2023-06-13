@@ -1,2 +1,2 @@
 ## NaaGPT
-[NaaGPT Discord Link](https://discord.gg/N8nByPfN)
+[NaaGPT Discord Link](https://discord.gg/cPx5juj9vX)
